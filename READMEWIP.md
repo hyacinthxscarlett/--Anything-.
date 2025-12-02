@@ -11,15 +11,15 @@ f ; fav
 t ; trusted
 c ; close
 
-Aestra -F-T-C
-Catty - C-T
-Riko -F-T-C
-Aster -T-C
-Huriyya -F-T-C
-Vanilla -F
-Zach -F
-Nae F-T
-Sleepy F-C
+Aestra -F-T-C-
+Catty - C-T-
+Riko -F-T-C-
+Aster -T-C-
+Huriyya -F-T-C-
+Vanilla -F-
+Zach -F-
+Nae F-T-
+Sleepy F-C-
 Naura / Angel F-C
 ________
 
