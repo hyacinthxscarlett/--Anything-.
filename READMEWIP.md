@@ -3,7 +3,7 @@ HELLO please read this, still a wip but okay!. . .
 PLEASE IWC!! (. ❛ ᴗ ❛.)
 This is include some things about me, dni list and etc.
 
-"DNI list : Darkshippers ( ANY TYPE !! Even if you darkshippers in my dni list, i can respect yall ), z00philes.
+"DNI list : Darkshippers ( ANY TYPE !! Even if you darkshippers in my dni list, i can respect yall ), z00philes, problematic ppl, etc.
 
 ________
 fav / trusted / close oomfs !
