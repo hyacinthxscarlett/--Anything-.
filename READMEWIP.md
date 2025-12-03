@@ -32,9 +32,9 @@ Sapphire / Sapph
 Scarlet / Scar
 Crimson
 And.. you can call me by my fictkins ( I totally didn't forgot my other name which is canaryn / ryn / car- .. )
-fictkins ; Sean, Echo, 1x1x1x1, Estate, KORBLOX, SSC, WLC, Mafioso, 007n7, chance, Ivan, andrew, Null (ANY), guest666, noob, and more . ( WIPP OK )
+fictkins ; Sean, Echo, 1x1x1x1, Estate, KORBLOX, SSC, WLC, Mafioso, 007n7, chance, Ivan, One, Harken, Artful, Ellernate, gigi, mfc, andrew, Null (ANY), guest666, noob, and more . ( WIPP OK )
 
-I am struggling with social anxiety(??), depression, sxicidal thoughts, s/h, self low esteem, sensitivity, body image, traumas, guiltiness, low confidence, intense moodswings, hypsxal ( i dont even dare to mention it. ), laziness, low focus (which lead me to getting distracted EASILY), short temper, etc.  MY caution and nervous behaviour makes me very shy and not that social. I am scared to hang out even with my friends, the more people around me, the more cautious and nervous i am, i hate being in a crowded place.
+I am struggling with social anxiety(??), depression, sxicidal thoughts, s/h, jealousy, self low esteem, sensitivity, body image, traumas, guiltiness, low confidence, intense moodswings, hypsxal ( i dont even dare to mention it. ), laziness, low focus (which lead me to getting distracted EASILY), short temper, etc.  MY caution and nervous behaviour makes me very shy and not that social. I am scared to hang out even with my friends, the more people around me, the more cautious and nervous i am, i hate being in a crowded place. I actually craves attention but... i'm scared, or even hate attention (maybe it depends?)
 ANYBODY please describe my personality.
 
 I dont trust people that much ( i only trusted *6* people. )
