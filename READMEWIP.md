@@ -34,8 +34,16 @@ Crimson
 And.. you can call me by my fictkins ( I totally didn't forgot my other name which is canaryn / ryn / car- .. )
 fictkins ; Sean, Echo, 1x1x1x1, Estate, KORBLOX, SSC, WLC, Mafioso, 007n7, chance, Ivan, One, Harken, Artful, Ellernate, gigi, mfc, andrew, Null (ANY), guest666, noob, and more . ( WIPP OK )
 
-I am struggling with social anxiety(??), depression, sxicidal thoughts, s/h, jealousy, self low esteem, sensitivity, body image, traumas, guiltiness, low confidence, intense moodswings, hypsxal ( i dont even dare to mention it. ), laziness, low focus (which lead me to getting distracted EASILY), short temper, etc.  MY caution and nervous behaviour makes me very shy and not that social. I am scared to hang out even with my friends, the more people around me, the more cautious and nervous i am, i hate being in a crowded place. I actually craves attention but... i'm scared, or even hate attention (maybe it depends?)
+I am struggling with social anxiety(??), depression, sxicidal thoughts, s/h, jealousy, self low esteem, sensitivity, body image, traumas, guiltiness, low confidence, intense moodswings, hypsxal ( i dont even dare to mention it. ), laziness, low focus (which lead me to getting distracted EASILY), short temper, etc.  MY caution and nervous behaviour makes me very shy and not that social. I am scared to hang out even with my friends, the more people around me, the more cautious and nervous i am, i hate being in a crowded place. I actually craves attention but... i'm scared, or even hate attention (maybe it depends?), my own personality affects ME slowly, time by time, i might change... Ok?
 ANYBODY please describe my personality.
 
+If you're joking, please atleast add "/j" or "/hj" to the end of your words, ex : I hate you /j
+So i actually know whether you're ACTUALLY joking or no. Also make your joke atleast FUNNY, it's not funny if you joke about serious
+things like what ppl struggling with, wars, etc. ( It's more of a sarcasm/satire )
+
+YES, i am muslimah. YES, i can be avoidant/distant. YES, i'm bad at comforting ppl but i am trying ok?
+
 I dont trust people that much ( i only trusted *6* people. )
+
+
 WIP
